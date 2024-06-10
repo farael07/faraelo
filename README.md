@@ -1,1 +1,1 @@
-# faraelo
+como sair deste labirinto?
